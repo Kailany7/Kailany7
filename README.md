@@ -1,6 +1,5 @@
 ### Oii! Eu sou a Kailany 
 - Estou cursando **Sistemas de Informação**  
-- Apaixonada pelo universo da tecnologia e interessada em metodologias ágeis para tornar o trabalho em equipe mais colaborativo e os projetos mais ágeis e eficientes✨ 
 
 ---
 
